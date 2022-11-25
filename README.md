@@ -1,0 +1,7 @@
+# yzm
+验证码识别检测更新
+~MEKAPONF~
+
+-LFKFOG-
+
+$FIFKIOKNDNGIAPOL$
